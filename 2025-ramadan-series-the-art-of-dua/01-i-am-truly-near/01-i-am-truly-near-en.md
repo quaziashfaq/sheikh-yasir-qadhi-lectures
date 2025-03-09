@@ -51,9 +51,9 @@ And notice the name that He chose. He didn't say I am As-Samiʿ (ٱلْسَّم�
 
 He is ٱلْسَّمِيعُ. He is ٱلْمُجِيبُ. But the word, الْقَرِيبُ, the name, الْقَرِيبُ, over here implies much more than hearing, much more than replying.
 
-Allah is saying, I know how you're feeling, I know your affairs, I am close to you, I am with you. So with الْقَرِيبُ, you not only get ٱلْسَّمِيعُ, you not only get ٱلْمُجِيبُ, you also get رَحْمَةٌ (mercy), you also get شَفَقَةٌ (compassion), you also get حلم (forbearance, patience, gentleness, or clemency), you also get protection. 
+Allah is saying, I know how you're feeling, I know your affairs, I am close to you, I am with you. So with الْقَرِيبُ, you not only get ٱلْسَّمِيعُ, you not only get ٱلْمُجِيبُ, you also get رَحْمَةٌ (mercy), you also get شَفَقَةٌ (compassion), you also get حلم (forbearance, patience, gentleness, or clemency), you also get protection.
 
-Allah is with us. Allah knows us. Allah loves us. Allah cares about us. Allah says, "I am with you oh my servant. You are never alone. You are never alone. I am with you from the beginning and I am with you at the end.  فَإِنِّى قَرِيبٌ Never lose hope from me. Never feel I am distant from you. Allah is addressing each and every one of us directly and he uses the name قَرِيبٌ and the word قَرِيبٌ or the name قَرِيبٌ only occurs twice in the Quran and both of them in the context of دُعَاءِ (duʿā’). 
+Allah is with us. Allah knows us. Allah loves us. Allah cares about us. Allah says, "I am with you oh my servant. You are never alone. You are never alone. I am with you from the beginning and I am with you at the end.  فَإِنِّى قَرِيبٌ Never lose hope from me. Never feel I am distant from you. Allah is addressing each and every one of us directly and he uses the name قَرِيبٌ and the word قَرِيبٌ or the name قَرِيبٌ only occurs twice in the Quran and both of them in the context of دُعَاءِ (duʿā’).
 
 In the other verse, Allah says in (Surah Hud, 11:61)
 
@@ -63,13 +63,13 @@ In the other verse, Allah says in (Surah Hud, 11:61)
 My رَب is قَرِيبٌ and مُّجِيبٌ. This is in surah Hud and in this verse فَإِنِّى قَرِيبٌ. In both of the verses the word قَرِيبٌ occurs in the context of duʿā’. Why? Because generally when we raise our hands  to Allah, we are worried, we are already in a state of anxiety, we're through some trouble, we have some issue and pressure. So we raise our hands to Allah. We're feeling worried and Allah says, "Don't worry I am with you". إِنِّى قَرِيبٌ.
 
  أُجِيبُ دَعْوَةَ ٱلدَّاعِ إِذَا دَعَانِ ۖ
- 
-I reply to the دُعَاءِ (duʿā’) of the one who makes duʿā’ when he makes duʿā’. 
 
-Notice how many times. Allah could have said "I reply". But 'No'. He wants to emphasize and notice he wants to emphasize -- what? -- he didn't say "I reply to you" because replying to you sometimes indicates I'll take care of you once. Allah says, "I reply to every request you make when you make that request. Every petition, every duʿā’, every ask that you make. أُجِيبُ دَعْوَةَ ٱلدَّاعِ. He didn't say I reply to you because reply to you, one letter comes, he's replied. No. I reply to every single letter you send me, every petition, every duʿā’, I will reply directly." 
+I reply to the دُعَاءِ (duʿā’) of the one who makes duʿā’ when he makes duʿā’.
+
+Notice how many times. Allah could have said "I reply". But 'No'. He wants to emphasize and notice he wants to emphasize -- what? -- he didn't say "I reply to you" because replying to you sometimes indicates I'll take care of you once. Allah says, "I reply to every request you make when you make that request. Every petition, every duʿā’, every ask that you make. أُجِيبُ دَعْوَةَ ٱلدَّاعِ. He didn't say I reply to you because reply to you, one letter comes, he's replied. No. I reply to every single letter you send me, every petition, every duʿā’, I will reply directly."
 
  أُجِيبُ دَعْوَةَ ٱلدَّاعِ إِذَا دَعَانِ ۖ
- 
+
 And we will explain this later on in the month.
 
 Oh Muslim! Every time you raise your hands to Allah properly, know that Allah will reply to your duʿā’. This is not me speaking. The Quran is unconditional. The first person, Allah, is speaking to you directly. (Allah says) Know that that I will reply to your duʿā’ not once to your duʿā’, every time you make duʿā’, every time you raise your hands, every time you petition me, every time you ask something I will reply to you directly.
@@ -87,7 +87,7 @@ The اِجَابَ is there. You just have to ask for it.
 
 فَلْيَسْتَجِيبُوا۟ لِى وَلْيُؤْمِنُوا۟ بِى
 
-And let them believe in me. 
+And let them believe in me.
 
 So believing in Allah and expecting Allah's answer is one of the most assured ways to get our duʿā’s replied to.
 

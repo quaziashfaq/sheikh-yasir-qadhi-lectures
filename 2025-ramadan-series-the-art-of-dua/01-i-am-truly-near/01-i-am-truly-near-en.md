@@ -1,4 +1,5 @@
 Date: February 26th, 2025
+
 Title of the lecture series: Whispers of the Divine - The Art of duʿā’
 
 Episode 1: Surah Baqarah, Verse 186
@@ -29,17 +30,17 @@ Right in the middle, Allah عَزَّ وَجَلْ (mightly and majestic) has th
 
 Let them respond to me and let them believe in me so that they may be rightly guided.
 
-So let us for today do a brief تَفْسِيْرٌ (Tafsīr or explanation) of this aayah (آية) and then every single day we will do another aspect of the aayah of duʿā’ and the etiquettes of duʿā’. Allah سُبْحَانَهُ وَتَعَالَى says وَإِذَا سَأَلَكَ عِبَادِى عَنِّى -- and when my عِبَادِ (servants) ask you about me. He doesn't say 'if' or 'in'. He says وَإِذَا, 'when', meaning it is inevitable that in the journey of worship every single worshipper will want to know the answer to this question:  “Is Allah listening to me?" "How will Allah reply to me?" 
+So let us for today do a brief تَفْسِيْرٌ (Tafsīr or explanation) of this aayah (آية) and then every single day we will do another aspect of the aayah of duʿā’ and the etiquettes of duʿā’. Allah سُبْحَانَهُ وَتَعَالَى says وَإِذَا سَأَلَكَ عِبَادِى عَنِّى -- and when my عِبَادِ (servants) ask you about me. He doesn't say 'if' or 'in'. He says وَإِذَا, 'when', meaning it is inevitable that in the journey of worship every single worshipper will want to know the answer to this question:  “Is Allah listening to me?" "How will Allah reply to me?"
 
 وَإِذَاسَأَلَكَ
 
 Whenever my عِبَادِ ask you about me. And notice Allah calls us عِبَادِ —- and عِبَادِ is the worshipper of Allah. And He عِبَادِ ascribes to himself.  When my worshippers, عِبَادِى, and this is an ascription of honour. Allah is claiming ownership. Allah is saying these are my people. Allah is elevating our ranks when we worship Him. عِبَادِ is different than عَبِيْدٌ (servants) and different than عَبْدٌ. The word عَبْدٌ means slaves and عِبَادِ means worshipper.
 
 
-Generally speaking, in the Quran, عِبَادِ is used in a ﺷَﺮَﻑٌ, in a matter of honour.  
+Generally speaking, in the Quran, عِبَادِ is used in a ﺷَﺮَﻑٌ, in a matter of honour.
 Allah is ascribing honour to those who worship Him. When those whom I have selected, when those whom I have honoured, who are worshiping me they are mine. I have chosen them. وَإِذَا سَأَلَكَ عِبَادِى عَنِّى So, oh worshipper of Allah! When you worship Allah, Allah سُبْحَانَهُ وَتَعَالَى has chosen you to worship Him. Allah has already honoured you when you choose to worship him because you will never worship Allah unless Allah has honoured you to do that worship.
 
-The mere act of worshiping Allah elevates your rank and Allah says these are my people -- وَإِذَا سَأَلَكَ عِبَادِى عَنِّي -- when my عِبَادِ (worshippers) ask you, O Prophet (يَا رَسُوْلَ اللَّهُ), about Me. 
+The mere act of worshiping Allah elevates your rank and Allah says these are my people -- وَإِذَا سَأَلَكَ عِبَادِى عَنِّي -- when my عِبَادِ (worshippers) ask you, O Prophet (يَا رَسُوْلَ اللَّهُ), about Me.
 
 Now all of you have heard this as well and I'll reiterate,  the Quran has over a dozen times: they ask you (يَسْاَلُوْنَكَ), they ask you (يَسْاَلُوْنَكَ), they ask you (يَسْاَلُوْنَكَ), and every single one of those times Allah says “Reply to them يَا رَسُوْلَ اللَّهُ (O Prophet), reply to them قُلْ” except in this one verse -- the only time in the whole Quran in which it is said when they ask you and then Allah says —- he doesn't say reply to them —- Allah replies directly in the first person. There is no other time in the whole Quran in which Allah says they're asking about a حِلَّ (solution), they're asking about <??>, they're asking about <??>, قُلْ respond, يَا رَسُوْلَ اللَّهُ (O Prophet).
 
